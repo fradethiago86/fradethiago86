@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fradethiago86
-- 👀 I’m interested in music, piano, singing, guitars, programming editing, sports. 
+- 👀 I’m interested in music, piano, singing, guitars, codify, sports. 
 - 🌱 I’m currently learning Analysis and Systems Development.  
 - 💞️ I’m looking to collaborate on new softwares or platforms.
 - 📫 How to reach me: Insta @thiagomaiafrade
